@@ -1,1 +1,1 @@
-# rsschool-cv
+https://CGTDA.github.io/rsschool-cv/cv
